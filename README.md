@@ -10,5 +10,5 @@
 ```
 ·Translation scope: Snupin (Snape/Lupin)
 ·I am the only one involved in the entire process
-·Please email or Tumblr for repo<3
+·Please email or Tumblr for repo<3（IF U DON'T HAVE PASSWORD SEED E-MAIL TO ME! MISSFUWORLD@OUTLOOK.COM)
 ```
